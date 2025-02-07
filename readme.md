@@ -33,7 +33,7 @@
 
 ## Special Note: Celebrate Rose Day on 7th February!
 
-Did you know that **7th February** is **Rose Day**, marking the start of **Valentine's Week**? It’s the perfect time to surprise your partner with a digital rose created with love. Share the **Blooming Rose** website and express your affection in a unique, creative way! 💐💕
+Did you know that **7th February** is **Rose Day**, marking the start of **Valentine's Week**. It’s the perfect time to surprise your partner with a digital rose created with love. Share the **Blooming Rose** website and express your affection in a unique, creative way! 💐💕
 
 
 ## Contributing
